@@ -1,6 +1,7 @@
 
-<img width="736" height="736" alt="16 sin título_20260427125420" src="https://github.com/user-attachments/assets/a590935f-d408-4867-a60b-30f995da2b8b" />
-
+<p align="center">
+<img width="543" height="543" alt="16 sin título_20260427125420" src="https://github.com/user-attachments/assets/a590935f-d408-4867-a60b-30f995da2b8b" />
+</p>
 
 
 
