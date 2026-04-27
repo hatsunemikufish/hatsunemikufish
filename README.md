@@ -1,26 +1,25 @@
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/4fb65872-34b2-4918-bc95-6f973476a02a" alt="Descripción" width="50%" />
-</p>
+<img width="736" height="736" alt="16 sin título_20260427125420" src="https://github.com/user-attachments/assets/a590935f-d408-4867-a60b-30f995da2b8b" />
 
 
-$${\color{#dbd7d7}\text{ アイタイアイタイアイシテ ⁠´⁠ε⁠｀!  }}$$
-$${\color{#97cfcd}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#f28a83}\text{︵ ༺
+
+
+
+$${\color{#FEF9D1}\text{ 恋をして ふられ また捨てられて ⁠ꈍ⁠ᴗ⁠ꈍ }}$$
+$${\color{#ec7d6a}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#950000}\text{︵ ༺
   𓂃  any , 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬  ꕮ   ︴p𝘢nsexu𝘢l!}}$$
  
 <div align="center">
 
  [atabook](https://avigolfish.atabook.org/)
 
-<img width="40" height="40" alt="10 sin título_20260416100321" src="https://github.com/user-attachments/assets/1483bbec-c409-4c82-bc1a-c998c49daf06" />
-
-<img width="150" height="20" alt="blinkiesCafe-HI" src="https://github.com/user-attachments/assets/3ef8782a-759a-4510-8a70-a0125feb2e1e" />
+<img width="156" height="156" alt="16 sin título_20260427125646" src="https://github.com/user-attachments/assets/1314b947-57d6-4747-94e2-d30fe565ce3e" />
 
 
-$${\color{#afbaba}\text{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$$
- $${\color{#7a8282}\text{ララララララ
-終わった(˶ᵔᗜᵔ˶)ﾉﾞ}}$$
 
-https://github.com/user-attachments/assets/968f0119-cfba-44a1-a911-f3735260f09d
+$${\color{#FF5760}\text{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$$
+ $${\color{#472A26}\text{this is my territory!}}$$
+
+
 
 
