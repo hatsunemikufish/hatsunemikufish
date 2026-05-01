@@ -1,25 +1,28 @@
 
 <p align="center">
-<img width="543" height="543" alt="16 sin título_20260427125420" src="https://github.com/user-attachments/assets/a590935f-d408-4867-a60b-30f995da2b8b" />
+<img width="370" height="320" alt="24 sin título_20260501170205" src="https://github.com/user-attachments/assets/fbcb120e-0cee-4734-a3bf-8808de19efbb" />
+
 </p>
 
 
 
 
-$${\color{#FEF9D1}\text{ 恋をして ふられ また捨てられて ⁠ꈍ⁠ᴗ⁠ꈍ }}$$
-$${\color{#ec7d6a}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#950000}\text{︵ ༺
+$${\color{#74554f}\text{ a 𝚜𝚑𝚊𝚍𝚘𝚠 can't kill you,𝙤𝙧 𝙞𝙩 𝙘𝙖𝙣?}}$$
+$${\color{#e5fded}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#e4f2e8}\text{︵ ༺
   𓂃  any , 𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬  ꕮ   ︴p𝘢nsexu𝘢l!}}$$
  
 <div align="center">
 
  [atabook](https://avigolfish.atabook.org/)
 
-<img width="156" height="156" alt="16 sin título_20260427125646" src="https://github.com/user-attachments/assets/1314b947-57d6-4747-94e2-d30fe565ce3e" />
+<img width="136" height="136" alt="21 sin título_20260501154001" src="https://github.com/user-attachments/assets/926c1a8a-2c1b-4796-a20c-c349f694c4b9" />
+
+$${\color{#98bfac}\text{who's THIS}}$$
 
 
 
-$${\color{#FF5760}\text{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$$
- $${\color{#472A26}\text{this is my territory!}}$$
+$${\color{#562624}\text{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}$$
+ $${\color{#a7cfbf}\text{I'm the 𝕟𝕚𝕘𝕙𝕥 𝕨𝕒𝕝𝕜𝕖𝕣, haha!}}$$
 
 
 
