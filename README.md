@@ -14,6 +14,7 @@ $${\color{#e5fded}\text{ ✿ 𐔌  αʋι  𓏵  golfish ⁺ }}$$ $${\color{#e4f
 <div align="center">
 
  [atabook](https://avigolfish.atabook.org/)
+strawpage in process!!!
 
 <img width="136" height="136" alt="21 sin título_20260501154001" src="https://github.com/user-attachments/assets/926c1a8a-2c1b-4796-a20c-c349f694c4b9" />
 
